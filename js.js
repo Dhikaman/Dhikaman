@@ -1,85 +1,27 @@
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-https://mega.nz/file/6BhlSIpI#KLLxcysx-bjwmFFG2_Yx3T3baNBZc0fCkqTASaNbmbY
-https://mega.nz/file/qI4HQICI#d8DznxAUfhvVEGtmN_2LJGNFdyR2RvJtj30G8yb4MKE
-https://mega.nz/file/yFwXhCrK#RDL27Dbclpv_Yyd82cvGfBdXc2kNUxMM3eXl4ZD4I9Y
-https://mega.nz/file/2NgX3Cxa#eT67MBb-apKzrpV26B7VdHN2En9hlOpByYqLdPRDxf8
-https://mega.nz/file/fJw3mKLZ#UBC8sTpZfhvAoLe4nUrCnXlFk4Bz6LKQg_8xysL4yoU
-https://mega.nz/file/XBgDia6a#Gy7x6GG_U9csnxRLAR6H7CRAgXZx81WGCGmBFneyVQQ
-https://mega.nz/file/rJxxTKaa#QaFTp3mMv56VTgiqdniNqhZTcFgqDe3quk6NZCuLgv8
-https://mega.nz/file/3Uph2K7A#FFv_LFDP0y-rIdV73C10JymcKnw8C3uK3njJgorcY1o
-https://mega.nz/file/mMojWYBb#GFlFeFjgOsB42sFvtyzK7BYCc7JphJ2vIeAIz8b8aRs
-https://mega.nz/file/fFwTCYKI#XqIN_UvzmSOiZbAMWHQUnC8FdPwtm9Y0_j4wPz_kpiM
-https://mega.nz/file/LYgVkaKZ#asov-GjrIgXZZqLFiZplZD9DJmQnuqAxkEq5KaXCqSM
-https://mega.nz/file/mA4xiYRB#fXHAUQPZB4zPAMhhT7x7MDj1Z4sinqma-dmaGGh06is
-https://mega.nz/file/WU4HUKBL#cqBZSHYphaBNjjWRhXXaNHz5J2guQrAbPjZJI4kxjZE
-https://mega.nz/file/GIozlACB#QSZovivCp3E4i9ZsKuFmqkjtkoMnK5CuU1XXU3aQed8
-https://mega.nz/file/mZxVxKiA#aVZj7WArrPAArg9RbQuLayLq8-QoAt0NIC9zgV1HLNg
-https://mega.nz/file/uUoXEYxT#RbXLxDQnKiHPzcnhTemtkH4Jkiooj0FfnkpWhDQspDw
-https://mega.nz/file/3ZxBQIjA#J5ledjZS_s-7xPJ0BqqFjVm3YPkN1VHxsEw5XiZzOXs
-https://mega.nz/file/vc41nA6K#A5fuZVSjesQ8nVww36o68xTYveIMv3hhF9PURMGlK0A
-https://mega.nz/file/CRoRXSzS#RB_gSiTcU653Sc5KpzXduBMB4oQ1ohjjRGsMZZ8WSWc
-https://mega.nz/file/eEg1AKJZ#NXYnph4W36tgcSrnL-i7Vnkl5X9DPTsHLPfGUSkgAJA
-https://mega.nz/file/idpVDajK#QzaEgBqhk7uqBJjt_jsjwg4BKj4P5Pal5ANLz9p93XA
-https://mega.nz/file/TUxTxAgI#XoDuPVkZPtWPMHCa0muZJlRInvhORVX200wDEvYxw-Y
-https://mega.nz/file/iQ5hTCbI#Ae2pxS75GTWa7xST0mujAXMr814ck82k34GpDuqVdZI
-https://mega.nz/file/3UpBFYDA#QoBiI2Bc0Xe90pVvip4rfTLXEAA0YCsmxxs-QuN951E
-https://mega.nz/file/bMozmKxR#aDbmCyN7Zlm9K1V_UUzxtUrkoUZCJV2csBk5Lgvsc5k
-https://mega.nz/file/aBoHmK5Z#P9na3WHQIemfON_FpTm4nTw55H5FQqjU1VxMMIrBSb0
-https://mega.nz/file/7YhFzQLC#XOr1dFR-Mh5UQEyOuIjgJWuB0OoiuispQkNBpNEkT_g
-https://mega.nz/file/DYgD2QiR#CHoiDWE54IYC6CgaOYQYeGEsSHRRusaoOapkcWHW1AU
-https://mega.nz/file/PR51zArC#JCERxFQewh8aCeMz4qw1o0qTiHwLhIu7dDA1VIzFvw8
-https://mega.nz/file/KRxxhCAD#JO0fSgeXPMLdCGEA8Me8R0H47Q9YDzhrrvp0c76F6tI
-https://mega.nz/file/aFgxUaZQ#Owo5gU2FniQSUkX6YDja0BqjQOxRhGYYdXp14CCoaZQ
-https://mega.nz/file/bMxFkYYQ#PImGMQGVqaFDuzS-sAmhOjKWWDkK-l8YC2jjlLn7GUE
-https://mega.nz/file/ecwFSIiR#SANbeAP9awfuiH1t-HA5uR7QjqRrjJDFty9qYeWTCYA
-https://mega.nz/file/uA4D3axD#PQ5_lzV5gBUesO9bDCE1cFng8MkShCXODJx5YCXD5-8
-https://mega.nz/file/HIwjxAxB#IHbhWS7-utd1XLSre0dh-G4opGpPms8GKvH5GD6wgj8
-https://mega.nz/file/KEw1XKJR#eR_L0nQ150gc1ympXgqXVwyGCqk4croNCoPm-z4iZWE
-https://mega.nz/file/SEwDWYSY#DasSuCCzroFlAO0NmM3S_QoXdSp6MAndU9Wt94CvzB8
-https://mega.nz/file/3dwzFKyB#C5djHnVkrVAWo-NCmGxAsl9kQGA1xYTwLs5sLL_jfMc
-https://mega.nz/file/LJojAY7a#D9FIpiE1fgq13QDbljCUtGDevu19gYGE97uuyMnDcmU
-https://mega.nz/file/eQ41lCzA#caQZp0rybKY556qziZiD23qOvPgcfICRAqtxL-vWc44
-https://mega.nz/file/GJgFUYDR#RBORHWaqSo1wuogOaKK3dWL-bEQWWL5wJq60WWnO03I
-https://mega.nz/file/fF5TSQ7B#QqcEOmvtYn0fk8x2wnf8iz2N-k15WXUrXdOeWZEANlM
-https://mega.nz/file/3Q4hlC7L#Jt3Z_3AUS0kCOEyjSmKPsnEJRP1SXCBifApr1TD5xVQ
-https://mega.nz/file/PI4RgYYD#QTdd_nhD1A2_sAO-_H_Lyy2N_pNLhmnWxONxOMsd-tc
-https://mega.nz/file/2M4j3IwB#TQHvQR-y-zFEbJlrIUiWdTxUv0Eaz_aoYRjlAXmaHN4
-https://mega.nz/file/nFwVGCYI#fzVzUTezKA5xn6JWKjQXGxttip1O65yIXj9Kb3UlM7M
-https://mega.nz/file/OdoRyQAD#cPPeBCTLMFOHO9YNvaD9oToGjKIVmi5DsbsXA5dboL4
-https://mega.nz/file/PZonWSKB#dBaH6w-asvBssJNYE-WQ6gn6T7AxNzojLVRPsHtcdrU
-https://mega.nz/file/eNp3nKpB#YICc41GL8i4rRmOb7Hmogkgj700qHiU4PLAu-KKYVbQ
-https://mega.nz/file/GAhDgKQT#eARsdG7_qKapaEmB_x1mdAhq7bkITpWvmqPKAvXxJ6A
-https://mega.nz/file/CIg1TQSA#MR0s62Rtturt2wTG7Pzcz2raSSZFKYj-zirJxYUA6t8
-https://mega.nz/file/OBhRUSrL#P0vHxjGvCmOF-jrTSqO3MVJXoYoIzgtOlfUKwUEVV1c
-https://mega.nz/file/mZoFjKRQ#Q7PGTR2HU9k9Su7WdYkP6hms2SlbFViXfMq_JwL7qGs
-https://mega.nz/file/fcxzzKaa#VlN8VWZqumEGDpPTJz3ctmUpcK0-Mm79LiLfP0v7unU
-https://mega.nz/file/KNxFSK5D#dXCOon2msmrFAW98HXFW-imimNJ0AHPA5ev6o0B7PkU
-https://mega.nz/file/3IxTQSjR#YTOoimbJ0vVUVvA-DJGMZxu8UqU3agWJNCoL7ifSJhQ
-https://mega.nz/file/mdhDmCDC#CjpgLVrnNj3NKxev_9N5iGYO3AVf-p_S-p1L1-OdmM8
-https://mega.nz/file/yN5HmI6C#I1KEl3cDUvyqCp6CpU4wYluxhw1FKH84pl9i172tRys
-https://mega.nz/file/HdxhBCaJ#SnQ0MV7Hj239RPdqCrULSk63nd1YWpX1ixzSbQx-3xU
-https://mega.nz/file/7d51mYiQ#Q_cFpHMVwAg4-ON8SV0e2gDivf5wV1YlCztvoGRFX4o
-https://mega.nz/file/KFoHkYQR#K-tbqQ0X245vw2AWZl01hxOZ4RsYwZ0dUe_hCh3kbTg
-https://mega.nz/file/eAgjgK5Y#QRg34hW-Vq8uNgxp3znQiQ6n4Q0mxZxuWPUvZI43_fY
-https://mega.nz/file/6ZpzEA7L#IWcHd08SMJ0VZVSkeReFjV4KPL1qJLKAfc2hu2irt2U
-https://mega.nz/file/KJhjnA7L#ZcbXcRTRyLs0fjmPRzDMWHPFRR1GasfyQZradggbIDg
-https://mega.nz/file/mNwTUAhQ#BL8rhSnPzEbQvDzXHwLZRUhTNGMFCMHPrUOsgz58X7Q
+var Base64={_keyStr:"ABCDEFGHIJKLMNOPQRSTUVWXYZabcdefghijklmnopqrstuvwxyz0123456789+/=",encode:function(input){var output="";var chr1,chr2,chr3,enc1,enc2,enc3,enc4;var i=0;input=Base64._utf8_encode(input);while(i<input.length){chr1=input.charCodeAt(i++);chr2=input.charCodeAt(i++);chr3=input.charCodeAt(i++);enc1=chr1>>2;enc2=((chr1&3)<<4)|(chr2>>4);enc3=((chr2&15)<<2)|(chr3>>6);enc4=chr3&63;if(isNaN(chr2)){enc3=enc4=64;}else if(isNaN(chr3)){enc4=64;}
+output=output+ this._keyStr.charAt(enc1)+ this._keyStr.charAt(enc2)+ this._keyStr.charAt(enc3)+ this._keyStr.charAt(enc4);}
+return output;},decode:function(input){var output="";var chr1,chr2,chr3;var enc1,enc2,enc3,enc4;var i=0;input=input.replace(/[^A-Za-z0-9\+\/\=]/g,"");while(i<input.length){enc1=this._keyStr.indexOf(input.charAt(i++));enc2=this._keyStr.indexOf(input.charAt(i++));enc3=this._keyStr.indexOf(input.charAt(i++));enc4=this._keyStr.indexOf(input.charAt(i++));chr1=(enc1<<2)|(enc2>>4);chr2=((enc2&15)<<4)|(enc3>>2);chr3=((enc3&3)<<6)|enc4;output=output+ String.fromCharCode(chr1);if(enc3!=64){output=output+ String.fromCharCode(chr2);}
+if(enc4!=64){output=output+ String.fromCharCode(chr3);}}
+output=Base64._utf8_decode(output);return output;},_utf8_encode:function(string){string=string.replace(/\r\n/g,"\n");var utftext="";for(var n=0;n<string.length;n++){var c=string.charCodeAt(n);if(c<128){utftext+=String.fromCharCode(c);}
+else if((c>127)&&(c<2048)){utftext+=String.fromCharCode((c>>6)|192);utftext+=String.fromCharCode((c&63)|128);}
+else{utftext+=String.fromCharCode((c>>12)|224);utftext+=String.fromCharCode(((c>>6)&63)|128);utftext+=String.fromCharCode((c&63)|128);}}
+return utftext;},_utf8_decode:function(utftext){var string="";var i=0;var c=c1=c2=0;while(i<utftext.length){c=utftext.charCodeAt(i);if(c<128){string+=String.fromCharCode(c);i++;}
+else if((c>191)&&(c<224)){c2=utftext.charCodeAt(i+ 1);string+=String.fromCharCode(((c&31)<<6)|(c2&63));i+=2;}
+else{c2=utftext.charCodeAt(i+ 1);c3=utftext.charCodeAt(i+ 2);string+=String.fromCharCode(((c&15)<<12)|((c2&63)<<6)|(c3&63));i+=3;}}
+return string;}}
+var encode=document.getElementById('encode'),decode=document.getElementById('decode'),output=document.getElementById('output'),input=document.getElementById('input');var User_ID="";var protected_links="";var a_to_va=0;var a_to_vb=0;var a_to_vc="";function auto_safelink(){auto_safeconvert();}
+function auto_safeconvert(){var a_to_vd=window.location.hostname;if(protected_links!=""&&!protected_links.match(a_to_vd)){protected_links+=", "+ a_to_vd;}else if(protected_links=="")
+{protected_links=a_to_vd;}
+var a_to_ve="";var a_to_vf=new Array();var a_to_vg=0;a_to_ve=document.getElementsByTagName("a");a_to_va=a_to_ve.length;a_to_vf=a_to_fa();a_to_vg=a_to_vf.length;var a_to_vh=false;var j=0;var a_to_vi="";for(var i=0;i<a_to_va;i++)
+{a_to_vh=false;j=0;while(a_to_vh==false&&j<a_to_vg)
+{a_to_vi=a_to_ve[i].href;if(a_to_vi.match(a_to_vf[j])||!a_to_vi||!a_to_vi.match("http"))
+{a_to_vh=true;}
+j++;}
+if(a_to_vh==false)
+{var encryptedUrl=Base64.encode(a_to_vi);a_to_ve[i].href="https://translucentlyclear.blogspot.com/2020/09/archaeoastronomy-dari-kebenaran-doc.html?url="+ encryptedUrl;a_to_ve[i].rel="nofollow";a_to_vb++;a_to_vc+=i+":::"+ a_to_ve[i].href+"\n";}}
+var a_to_vj=document.getElementById("anonyminized");var a_to_vk=document.getElementById("found_links");if(a_to_vj)
+{a_to_vj.innerHTML+=a_to_vb;}
+if(a_to_vk)
+{a_to_vk.innerHTML+=a_to_va;}}
+function a_to_fa()
+{var a_to_vf=new Array();protected_links=protected_links.replace(" ","");a_to_vf=protected_links.split(",");return a_to_vf;}
